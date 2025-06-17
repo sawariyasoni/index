@@ -1,4 +1,5 @@
 bro i goona to build my pc with this configuration tell me if it's good or not and give me your suggestions about this pc 
+
 Pc cabinet:- Ant Value Acrylic Vm10 Mid-Tower Computer Case/Gaming Cabinet - Black Support M-ATX,Itx, Pre-Installed 2 Front Rainbow Fans
 
 Ram :-Patriot Memory Viper Elite II DDR4 16GB(2 x 8GB) 3200MHz Kit PVE2416G320C8K
